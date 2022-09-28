@@ -1,1 +1,1 @@
-# RecursividadeQuesta - Thiago Henrique de Souza Gomes - RA11929736
+# RecursividadeQuesta - Thiago Henrique - RA11929736
